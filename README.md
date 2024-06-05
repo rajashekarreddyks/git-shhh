@@ -1,3 +1,1 @@
-#shekar ks kurapalli
-kannada
-english master
+jagan is intelegent person in tm palli
